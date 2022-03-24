@@ -3,11 +3,10 @@ i'm Gang Callum, in Chinese is 赵刚
 you can call me ganggangxiao  
 
 # My Hobby
-- Study  
 - Coding  
 - Music
-- Confusionism
-- Deutsch  
+- Physics
+- German  
 
 
 # Call Me !
