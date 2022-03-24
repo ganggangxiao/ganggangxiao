@@ -6,14 +6,15 @@ you can call me ganggangxiao
 - Study  
 - Coding  
 - Music
-- Confusionism/儒学
-- Germany/Deutsch  
+- Confusionism
+- Deutsch  
 
 
 # Call Me !
 - oicq（qq）:2825218681  
 - bilibili:[@幽默刚刚](https://space.bilibili.com/2066061535)  
 - email:ganggangxiao@outlook.com  
+- blog : [GGX BLOG](https://ganggangxiao.github.io)  
 
 <!---
 ganggangxiao/ganggangxiao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
