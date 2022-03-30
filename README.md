@@ -1,5 +1,5 @@
 ## Boom !
-i'm Gang Callum, in Chinese is 赵刚
+i'm Gang Callum  
 you can call me ganggangxiao  
 
 # My Hobby
