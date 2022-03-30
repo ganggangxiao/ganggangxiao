@@ -1,6 +1,5 @@
 ## Boom !
-i'm Gang Callum  
-you can call me ganggangxiao  
+i'm Gang Callum
 
 # My Hobby
 - Programming  
