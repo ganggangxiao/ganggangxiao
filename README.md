@@ -1,5 +1,5 @@
 ## Boom !
-i'm Gang Callum, just a simple boy.
+i'm Gang Callum, just a boy.
 
 # My Hobby
 - Programming  
