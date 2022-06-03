@@ -1,6 +1,6 @@
 ## Boom !
-I'm Gang Callum, just a junior high boy.
-Nice to meet u !
+I'm Gang Callum, a junior high boy.
+Nice to meet you !
 # My Hobby
 - Programming  
 - Music  
